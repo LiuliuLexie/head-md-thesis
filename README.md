@@ -3,7 +3,7 @@ Here are all things about my thsis.
 
 ## Timeline
 - **12 September 2025 – Submit a written draft of approximately 10,000 characters to your tutor.**
-- 23 September 2025 – Present the research you conducted over the summer during an informal exhibition. (See details below.)
+- 23 September 2025 – Present the research you conducted over the summer during an informal exhibition.
 - 10 October 2025 – Submit a second draft, around 30,000 characters in length.
 - 14 October 2025 – Present your progress in a structured oral presentation.
 - 28 October 2025 – Present the near-final stage of your writing and project development.
